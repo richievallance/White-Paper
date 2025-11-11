@@ -44,7 +44,7 @@ Any unauthorised use, redistribution, or failure to provide proper citation auto
 
 For permission requests, collaboration proposals, or commercial licensing:
 
-R. S. Vallance Vallance Industries Research Division 📧 info@vallance-industries.org
+R. S. Vallance Vallance Industries Research Division 📧 richievallance@outlook.com
 
 Plain-language summary
 
